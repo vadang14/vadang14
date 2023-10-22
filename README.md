@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vadang14
+- 👀 I’m interested in life
+- 🌱 I’m currently learning living
+- 💞️ I’m looking to collaborate on family
